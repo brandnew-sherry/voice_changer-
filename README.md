@@ -14,3 +14,4 @@ You can click the Preview link to take a look at your changes.
 ウンザリだ警察
 7985検察4489国税局
  601で使える
+i was quite 7985検察601。just 4489国税局only now
